@@ -1,8 +1,7 @@
-<!DOCTYPE html>
 <html>
 <body>
 
-<h1><center>Invite</center></h1>
+<h1><center>Duggu's Naming Ceremony Invite </center></h1>
 <p><center>Once there was a boy who had four sisters,<br>
 Got a bit bored being the only mister;<br>
 Prayed god for a twist in his parents wish,<br>
@@ -20,7 +19,15 @@ Hugging each, like just born teddies;<br>
  <br>
 Sometimes he calls him Duggu, Flash, Bheem and more;<br>
 What do we finally call him? come join us as we spread the lore. </center><br></p>
-- Pavan Kumar Venugopal
+                                            
+<p>Smayan invites you all with your family to the Naming Ceremony of his younger brother at our house “Iha” on <br>
+15th of March at 10:30 AM. <br><br>
+It will be our privilege to have you around as our second son gets his name whispered in the presence of his favorite Grandparents, Aunts, Uncles <br>
+and loving cousins.<br></p>
+     
+                                             
+<p style="text-align:right">- Swathi & Pavan</p>
+
 </body>
 </html>
 
