@@ -23,7 +23,7 @@ What do we finally call him? <br>come join us as we spread the lore. </center><b
 <p><center>Smayan invites you all with your family to the<br> <b>Naming Ceremony</b><br> of his younger brother at our house <i>“Iha”</i></b> on <br>
 <b>15th of March at 10:30 AM.</b> <br><br>
 It will be our privilege to have you around as our second son gets his name whispered in the presence of his favorite Grandparents, Aunts, Uncles
-and <br>loving cousins.</center><br></p>
+and loving cousins.</center><br></p>
      
                                              
 <p style="text-align:right">- <b>Swathi & Pavan</b></p>
