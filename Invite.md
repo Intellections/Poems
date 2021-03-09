@@ -18,10 +18,10 @@ Drooling all over while sitting in his lap;<br>
 Hugging each, like just born teddies;<br>
  <br>
 Sometimes he calls him Duggu, Flash, Bheem and more;<br>
-What do we finally call him? come join us as we spread the lore. </center><br></p>
+What do we finally call him? <br>come join us as we spread the lore. </center><br></p>
                                             
-<p><center>Smayan invites you all with your family to the<br> <b>Naming Ceremony<b><br> of his younger brother at our house <b><i>“Iha”</i></b> on <br>
-15th of March at 10:30 AM. <br><br>
+<p><center>Smayan invites you all with your family to the<br> <b>Naming Ceremony</b><br> of his younger brother at our house <i>“Iha”</i></b> on <br>
+<b>15th of March at 10:30 AM.</b> <br><br>
 It will be our privilege to have you around as our second son gets his name whispered in the presence of his favorite Grandparents, Aunts, Uncles
 and <br>loving cousins.</center><br></p>
      
