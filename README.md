@@ -2,7 +2,7 @@
 <html>
 <body>
 
-<h1><center>Invite</center></h1>
+<h1><center>Duggu's Invite Poem</center></h1>
 <p><center>Once there was a boy who had four sisters,<br>
 Got a bit bored being the only mister;<br>
 Prayed god for a twist in his parents wish,<br>
@@ -20,7 +20,7 @@ Hugging each, like just born teddies;<br>
  <br>
 Sometimes he calls him Duggu, Flash, Bheem and more;<br>
 What do we finally call him? come join us as we spread the lore. </center><br></p>
-- Pavan Kumar Venugopal
+                                                <p style="text-align:right">- Pavan Kumar Venugopal</p>
 </body>
 </html>
 
